@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on URL SHORTNER<br>🌱 I’m currently learning NOTHING<br>💬 Ask me about anything you want
+🔭 I’m currently working on NOTHING<br>🌱 I’m currently learning NOTHING<br>💬 Ask me about anything you want
 
 
 ## 🌐 Socials:
